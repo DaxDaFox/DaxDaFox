@@ -1,4 +1,3 @@
-Is fox.
+Is fomx.
 Codes.
-Needs a stable job.
 Is 23.
